@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Sharni01
-- 💞️ I’m looking to collaborate on beginer level projects.
+- 💞️ I’m looking to collaborate on projects.
 - 📫 How to reach me mail:nadarsharni@gmail.com
 
 
